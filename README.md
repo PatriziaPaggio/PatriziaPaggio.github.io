@@ -1,4 +1,4 @@
-![](https://github.com/PatriziaPaggio/PatriziaPaggio.github.io/blob/main/IMG_5502.JPG)
+![](https://github.com/PatriziaPaggio/PatriziaPaggio.github.io/blob/main/banner.jpg)
 
 # Welcome to Patrizia Paggio’s home page
 
